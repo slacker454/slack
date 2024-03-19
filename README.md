@@ -1,3 +1,1 @@
-/kills all mobs
-/ stay full health
-/get full xp 
+https://www.noredink.com/learn/home /get all answer correct \
